@@ -4,7 +4,7 @@
 
 ###
 
-<h5 align="center">⠀᭥    cake / cloud     ۪.    she/him    ݁    —⠀⠀ <br>gojo & cloud fictkin ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀c+h welcomed  —  twenty years old</h5>
+<h5 align="center">⠀᭥    cake / cloud     ۪.    she/him    ݁    —⠀⠀ <br>gojo, sonic & cloud fictkin ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀c+h welcomed  —  twenty years old</h5>
 
 ###
 
