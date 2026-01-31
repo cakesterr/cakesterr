@@ -1,10 +1,10 @@
 <div align="center">
-  <img height="260" src="https://forum.psnprofiles.com/uploads/monthly_2021_05/ddwysdq-3f4ab0f5-ea56-4571-8361-c26786822d9a.thumb.gif.899fc8a985ced10fb49b44532a06e725.gif"  />
+  <img height="185" src="https://64.media.tumblr.com/bb61513e1cf401731e81318d2e89cbc1/fe5d9a95865028a4-bb/s500x750/300050e53b582eef5c2c53575dc798ae79955546.pnj"  />
 </div>
 
 ###
 
-<h5 align="center">⠀᭥    cake / cloud     ۪.    she/him    ݁    —⠀⠀ <br>gojo & cloud fictkin ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀c+h welcomed  —  twenty years old</h5>
+<h6 align="center">⠀᭥    cake       ۪.    she/him    ݁    —⠀⠀ <br>gojo  fictkin (coping-link) ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀c+h welcomed  —  twenty years old</h6>
 
 ###
 
@@ -19,12 +19,7 @@
 ###
 
 <div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=cakesterr.cakesterr&"  />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=cakesterr.cakesterr&left_color=blue&right_color=grey&left_text=ocean%20dwellers"  />
 </div>
 
 ###
-<br>
-
-<sub align="center">more information soon ⸝ strawpage pending</sub>
-
-</div>
