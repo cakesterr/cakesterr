@@ -4,7 +4,7 @@
 
 ###
 
-<h6 align="center">⠀᭥    cake       ۪.    she/him    ݁    —⠀⠀ <br>gojo  fictkin (coping-link) ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀c+h welcomed  —  twenty years old</h6>
+<h5 align="center">⠀᭥    cake       ۪.    she/him    ݁    —⠀⠀ <br>gojo  fictkin (coping-link) ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀c+h welcomed  —  twenty years old</h5>
 
 ###
 
