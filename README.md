@@ -15,13 +15,13 @@
 ###
 
 <div align="center">
-  <img height="30" src="[https://64.media.tumblr.com/619e70b58f9aff42aa3486a33a48efb7/a1907b88b22d70ee-b4/s1280x1920/44a928bec46c2baa3961024d86bf9383343834ef.pnj](https://media.discordapp.net/attachments/1182069067360768194/1468185408452956314/Screenshot_2026-02-03_032243_1.png?ex=698319b6&is=6981c836&hm=5ee41adb44c6d819066bc918c9718befbfa49ff642314ec5761adb3d39d2d688&=&format=webp&quality=lossless&width=714&height=992)"  />
+  <img height="30" src="https://64.media.tumblr.com/619e70b58f9aff42aa3486a33a48efb7/a1907b88b22d70ee-b4/s1280x1920/44a928bec46c2baa3961024d86bf9383343834ef.pnj"  />
 </div>
 
 ###
 
 <div align="center">
-  <img height="200" src="https://i.ibb.co/CKcfhTZq/Screenshot-2026-02-03-032243-1.png"  />
+  <img height="200" src="https://media.discordapp.net/attachments/1182069067360768194/1468185408452956314/Screenshot_2026-02-03_032243_1.png?ex=698319b6&is=6981c836&hm=5ee41adb44c6d819066bc918c9718befbfa49ff642314ec5761adb3d39d2d688&=&format=webp&quality=lossless&width=714&height=992"  />
 </div>
 
 ###
