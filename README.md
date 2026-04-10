@@ -10,7 +10,7 @@
 
 ###
 
-<h5 align="center">⠀᭥    cake / toru     ۪.    him/she   ݁    —⠀⠀ <br>literally gojo (coping-link fictkin) ⁔⠀taken (08/24/24) ♡<br>⠀⠀——⠀⠀C+H WELCOMED ALWAYS!  —  twenty years old</h5>
+<h5 align="center">⠀᭥    cake / toru     ۪.    him/she   ݁    —⠀⠀ <br>literally gojo (coping-link fictkin) ⁔⠀aroace ♡<br>⠀⠀——⠀⠀C+H WELCOMED ALWAYS!  —  twenty years old</h5>
 
 ###
 
