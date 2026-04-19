@@ -14,9 +14,7 @@
 
 ###
 
-<div align="center">
-  <img height="30" src="https://64.media.tumblr.com/619e70b58f9aff42aa3486a33a48efb7/a1907b88b22d70ee-b4/s1280x1920/44a928bec46c2baa3961024d86bf9383343834ef.pnj"  />
-</div>
+
 
 ###
 
