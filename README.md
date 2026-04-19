@@ -18,9 +18,7 @@
 
 ###
 
-<div align="center">
-  <img height="200" src="https://media.discordapp.net/attachments/1182069067360768194/1468185408452956314/Screenshot_2026-02-03_032243_1.png?ex=698319b6&is=6981c836&hm=5ee41adb44c6d819066bc918c9718befbfa49ff642314ec5761adb3d39d2d688&=&format=webp&quality=lossless&width=714&height=992"  />
-</div>
+
 
 ###
 
