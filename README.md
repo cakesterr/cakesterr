@@ -22,7 +22,7 @@
 
 ###
 
-<h5 align="center">hello, i'm cake! you can also call me by the skin i'm wearing aswell.<br>i'm typically quiet and usually shy & awkward but i dont mind conversation & meeting new people.<br>i enjoy making friends no matter the differences, i love all my fellow weirdos. i enjoy a handful of medias & love learning<br>about others interests! however please be a decent person as always.<br><br>no response = offtab<br>whisper to get my attention!<br><br>PAGE IS UNDER WIP</h5>
+<h5 align="center">hello, i'm cake! you can also call me by the skin i'm wearing aswell.<br><br>i enjoy making friends no matter the differences, i love all my fellow weirdos. i enjoy a handful of medias & love learning<br>about others interests! however please be a decent person as always.<br><br>no response = offtab<br>whisper to get my attention!<br><br>PAGE IS UNDER WIP</h5>
 
 ###
 
